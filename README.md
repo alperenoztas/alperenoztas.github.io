@@ -1,2 +1,0 @@
-# alperenoztas.github.io
-Portfolio
